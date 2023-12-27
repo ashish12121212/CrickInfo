@@ -1,3 +1,2 @@
-![Screenshot (145)](https://github.com/ashish12121212/CrickInfo/assets/82255261/97442d1e-0fa5-46a7-a8fb-9cf86da64f2d)
 
-![Screenshot (147)](https://github.com/ashish12121212/CrickInfo/assets/82255261/640d1c3b-55d0-404f-94bc-36a309edb003)
+![Screenshot (150)](https://github.com/ashish12121212/CrickInfo/assets/82255261/464fa1fc-1fac-4767-880f-499659d06c18)
